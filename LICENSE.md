@@ -1,4 +1,4 @@
-# 
+# Nuevo CCleaner plugins para Mac OS | Exclusivo CCleaner plugins para PC Windows. Con ajuste de CPU y optimización de refrigeración — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
